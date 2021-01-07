@@ -1,1 +1,1 @@
-# King-s-Hawaiian
+# Kings-Hawaiian
